@@ -1,2 +1,2 @@
 # hello-cruel
-Starting is such sweet sorrow
+Starting over is such sweet sorrow again
